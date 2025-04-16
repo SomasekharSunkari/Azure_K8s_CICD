@@ -7,4 +7,4 @@
 ![azure08](https://github.com/user-attachments/assets/cdebe160-4583-49d4-911b-75f9afbf3f16)
 ![azure11](https://github.com/user-attachments/assets/9d32046e-9623-4965-b6ff-9d3c5ab29a25)
 
-![azure11](https://github.com/user-attachments/assets/02c2875c-a90e-485b-8ad6-747e3059ee61)
+![azure10](https://github.com/user-attachments/assets/0a7fc973-14fd-4ae6-aa72-1d4717e9533c)
